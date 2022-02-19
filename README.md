@@ -1,10 +1,5 @@
+18, h/h
 
-### gm, i'm bup
-h/h, 18
+my discord account is bup#0441 | mod @ https://giveawaybot.party/, https://ygg.fun/, https://truthordarebot.xyz
 
-funny fella
-
-bup0441#9742 on discord, mod @ https://ygg.fun/ & https://giveawaybot.party
-
-:mortar_board:
-:otter:
+ceo @ otter university
