@@ -1,4 +1,4 @@
-18, h/h
+18, he/him or any pronouns
 
 my discord account is bup#0441 | mod @ https://giveawaybot.party/, https://ygg.fun/, https://truthordarebot.xyz
 
