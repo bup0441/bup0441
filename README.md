@@ -1,7 +1,3 @@
-20, any pronouns
-
-my discord account is bup0441 | administrator and authoritarian @ [Discord Previews](https://discordpreviews.com/), moderator and bot restart man @ [GiveawayBot](https://github.com/jagrosh/GiveawayBot), ceo and otter poster @ otter university
-
-i dont use github
-
-🦦
+21, any pronouns
+my discord account is [bup0441](https://discord.com/users/587352234715774976) | administrator and authoritarian @ [Discord Previews](https://discordpreviews.com/)
+i don't use github
